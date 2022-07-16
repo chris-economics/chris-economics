@@ -1,7 +1,7 @@
 Hi,  I'm Christopher Smith, soon to be Christopher Kaczmarczyk-Smith (whenver the social security  offices open back up).
 
 Ph.D. Candidate in  Economics  at Purdue University. 
-Chief Economist @ Metanomic Ltd., a video  game tech solutions startup.  
+Former Chief Economist @ Metanomic Ltd., a video  game tech solutions startup.  
 Master's in Quant. Econ @ Purdue
 Bachelor's in Quant. Econ (math and music emphases) @ UW-Oshkosh
 
